@@ -4,3 +4,6 @@
 - updating GitHub profile, HTML project (2-1-2026)
 - Video Editing shorts upload, KFC  (3-1-2026)
 - HTML Practice, Weekend Cooking, Capcut meeting (4-1-2026)
+- Genpact Process Associate Invite, PMS Call (5-1-2026)
+- Genpact Managerial interview call (6-1-2026)
+
