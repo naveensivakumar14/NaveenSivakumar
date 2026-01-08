@@ -6,4 +6,5 @@
 - HTML Practice, Weekend Cooking, Capcut meeting (4-1-2026)
 - Genpact Process Associate Invite, PMS Call (5-1-2026)
 - Genpact Managerial interview call (6-1-2026)
+- Genpact Rejection, Offshore client meeting (7-1-2026)
 
