@@ -7,5 +7,6 @@
 - Genpact Process Associate Invite, PMS Call (5-1-2026)
 - Genpact Managerial interview call (6-1-2026)
 - Genpact Rejection, Offshore client meeting (7-1-2026)
-- Office visit new asset replacement (8-1-2026)
+- Telephonic interview level 1 screening (8-1-2026)
+- Office visit new asset replacement (9-1-2026)
 
