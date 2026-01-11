@@ -9,5 +9,5 @@
 - Genpact Rejection, Offshore client meeting (7-1-2026)
 - Telephonic interview level 1 screening (8-1-2026)
 - Office visit new asset replacement (9-1-2026)
-- House cleaning and excel work , week off (10-1-2026)
-- 
+- House cleaning and excel work, week off (10-1-2026)
+- getGrocery project work, Capcut practice, shorts upload (11-1-2026)
