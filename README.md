@@ -11,3 +11,4 @@
 - Office visit new asset replacement (9-1-2026)
 - House cleaning and excel work, week off (10-1-2026)
 - getGrocery project work, Capcut practice, shorts upload (11-1-2026)
+- interview prep, shorts upload, problem solving (12-1-2026)
