@@ -12,3 +12,4 @@
 - cleaning and Excel work, week off (10-1-2026)
 - getGrocery project work, Capcut practice, shorts upload (11-1-2026)
 - interview prep, shorts upload, problem solving (12-1-2026)
+- shorts upload, content creation basics, HTML CSS (13-1-2026)
