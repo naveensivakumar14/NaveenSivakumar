@@ -1,6 +1,6 @@
 # Working Status 2026
 
-##Jan 
+- Jan 
 ##Feb
 ##Mar
 ##Apr
