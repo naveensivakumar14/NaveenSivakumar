@@ -6,3 +6,6 @@
 - Apr
 - May
 - June
+- July
+- August
+- September
